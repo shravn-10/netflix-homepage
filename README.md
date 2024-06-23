@@ -2,5 +2,8 @@
 
 
 
-Uploading Netflixhomepage_fullvid.mp4…
+
+https://github.com/shravn-10/netflix-homepage/assets/109055682/d5611748-424b-4ddc-8ed8-94bb144ba91f
+
+
 
